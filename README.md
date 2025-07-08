@@ -1,1 +1,1 @@
-# SEo-Portfolio
+# SEO-PORTFOLIO
